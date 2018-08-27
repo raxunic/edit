@@ -1,2 +1,7 @@
-# edit
-nah bukan kaleng 2 kaleng :V
+THANK YOU FOR ARIFISTIFIK
+THANK YOU TO
+- MINION
+- HW
+- RA
+HANYA UPLOUD DOANG!
+BOLEH MAKE
